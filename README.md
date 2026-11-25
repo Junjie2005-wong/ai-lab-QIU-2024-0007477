@@ -1,1 +1,4 @@
-
+Wong Jun Jie
+BCS
+QIU-202407-007477
+Male
